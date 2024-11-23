@@ -1,2 +1,1 @@
-# jaay.github.io
 
